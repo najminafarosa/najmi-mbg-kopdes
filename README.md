@@ -1,0 +1,2 @@
+# najmi-mbg-kopdes
+ezar
